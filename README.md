@@ -1,0 +1,2 @@
+# bygece
+Bugün Günlerden Çarşamba
