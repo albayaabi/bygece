@@ -1,2 +1,1 @@
-# bygece
-Bugün Günlerden Çarşamba
+Çarşamba, haftanın ortası olmasıyla bir denge günüdür; ne hafta başının telaşı vardır ne de sonunun yorgunluğu. Hafta içinin temposuna alışılmış, işler rayına oturmuştur. Enerjisi sakindir, ama verimlidir. Güneşli bir çarşamba sabahı, haftaya dair umutları tazeler. İnsanlar planlarını gözden geçirir, hedeflerini toparlar. Aynı zamanda, hafta sonu yaklaştığı için küçük bir heyecan başlar. Dinlenme fikri ufukta görünür. Çarşamba, hem düşünmek hem üretmek için idealdir. Ne aceleye gelir ne de yavaşlatır. İçsel huzurla dolu, dengeli bir nefes gibidir.
